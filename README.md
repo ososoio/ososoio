@@ -1,3 +1,3 @@
 ### Bing Jeung
 
-Another extremely stable genius
+Another Very Stable Genius
