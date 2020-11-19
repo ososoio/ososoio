@@ -1,3 +1,17 @@
-### Bing Jeung
+### Bing Zeung
 
-Very Stable Genius
+Anti-Progressive
+
+🚁 🇨🇱
+
+。
+
+。
+
+。
+
+。
+
+。
+
+🤸‍♂️☭
