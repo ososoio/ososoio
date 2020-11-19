@@ -1,4 +1,4 @@
-### Bing Zeung
+### Bing Jeung
 
 Anti-Progressive
 
