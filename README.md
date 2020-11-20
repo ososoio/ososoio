@@ -1,7 +1,3 @@
-### Bing Jeung
-
-Anti-Progressive
-
 🚁 🇨🇱
 
 。
